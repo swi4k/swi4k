@@ -10,9 +10,8 @@
 
 ![fds](https://gifcity.carrd.co/assets/images/gallery46/3ab5c778.gif?v=e3c0bc0f)
 
+![фыыы](https://artwork.neocities.org/stamps/stamp37.png) ⌣⌣⌣⌣ <img src="https://visitor-badge.laobi.icu/badge?page_id=swi4k&left_color=grey&right_color=lightgray&left_text=VISITORS!"/> ⌣⌣⌣⌣ ![(https://artwork.neocities.org/stamps/stamp178.gif)](https://artwork.neocities.org/stamps/neo/stamp_flower.gif)
 
-![https://gifcity.carrd.co/assets/images/gallery97/e4109437.gif?v=e3c0bc0f](https://artwork.neocities.org/stamps/stamp37.png) ⌣⌣⌣ㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/66e7eda3-b858-4dbf-bd99-c99a4f4bfd23" />
- <img src="https://visitor-badge.laobi.icu/badge?page_id=swi4k&left_color=grey&right_color=lightgray&left_text=VISITORS!"/>ㅤ ⌣⌣⌣ ![(https://artwork.neocities.org/stamps/stamp178.gif)
-](https://artwork.neocities.org/stamps/neo/stamp_flower.gif)
+
 
    <p align="center">
